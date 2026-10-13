@@ -1,6 +1,6 @@
 <div align="center">
 
-# Hi there, I'm Patwarymahmud 👋
+# Hi there, I'm Mahmud Hasan. 👋
 ![image alt](https://github.com/patwarymahmud/patwarymahmud/blob/d12a299c36bb39dbfa8a8dbd20fa1459be1372b8/Gemini_Generated_Image_t2avu5t2avu5t2av.png)
 
 
